@@ -44,7 +44,7 @@ Our mission is to create accessible, high-performance technology that enables bu
 - WhatsApp: [+243 977 776 716](https://wa.me/243977776716)
 - Linkedin: [https://linkedin.com/company/amtechtechnology](https://linkedin.com/company/amtechtechnology)
 - GitHub: [https://github.com/amtech-technology](https://github.com/amtech-technology)
-- Facebook: [https://web.facebook.com/people/Amtech-technology/](https://web.facebook.com/people/Amtech-technology/100086849296272/)
+- Facebook: [https://facebook.com/people/Amtech-technology/](https://web.facebook.com/people/Amtech-technology/100086849296272/)
 - Twitter (X): [https://www.x.com/amtech_co_llc](https://www.x.com/amtech_co_llc)
 - Instagram: [https://www.instagram.com/amtech.technology/](https://www.instagram.com/amtech.technology/)
 - Youtube: [https://www.youtube.com/@amtech-technology](https://www.youtube.com/@amtech-technology)
